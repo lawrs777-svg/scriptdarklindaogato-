@@ -1,1 +1,1 @@
-# scriptdarklindaogato-
+
